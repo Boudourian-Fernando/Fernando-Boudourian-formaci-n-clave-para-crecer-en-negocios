@@ -1,1 +1,2 @@
-# Fernando-Boudourian-formaci-n-clave-para-crecer-en-negocios
+# Fernando-Boudourian-formación-clave-para-crecer-en-negocios
+Un MBA no es solo un título, es una estrategia para el éxito. Brinda conocimientos en gestión, liderazgo y toma de decisiones, fundamentales para avanzar en el mundo empresarial. Además, permite construir una red de contactos con impacto global, generando nuevas oportunidades laborales y colaboraciones. Esta formación es una inversión que impulsa el crecimiento profesional y mejora las perspectivas económicas a largo plazo.
